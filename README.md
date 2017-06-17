@@ -1,0 +1,2 @@
+# cctv
+TektroniX Technology Systems LLc we are technology company we provide customized IT solution, majorly we deal into telematics and installation of CCTV, smart CCTV, smart surveillance, access control,  time and attendance management system,IT infrastructures, home automation,asset tracking ,gps tracking, wifi setup,  intercom, structured cabling,cat6,fiber cabling, gate barrier, PABX,wireless setup, Wmax. we have our own research  and development department hardware and software. our product is RTA approved.
